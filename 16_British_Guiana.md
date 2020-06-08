@@ -147,44 +147,44 @@ Still-classified documents depict in unusual detail a direct order from the Pres
 
 12. <span id="f12" name="f12">Jagan, p. 255.</span> [↩](#t12)
 
-13.1962 strike: New York Times, 22 February 1967, p. 17; 30 October 1994, p. 4 (media):Barnet, p. 245; Agee, pp. 293-4; Jagan, pp. 252-69; The Times (London) 13 March 1962, p.10.
+13. <span id="f13" name="f13">1962 strike: New York Times, 22 February 1967, p. 17; 30 October 1994, p. 4 (media):Barnet, p. 245; Agee, pp. 293-4; Jagan, pp. 252-69; The Times (London) 13 March 1962, p.10.</span> [↩](#t13)
 
-14.1963 strike, general description: Jagan, chapters 13 and 14.
+14. <span id="f14" name="f14">1963 strike, general description: Jagan, chapters 13 and 14.</span> [↩](#t14)
 
-15.Parliamentary Debates, House of Commons, 4 May 1966, columns 1765-7; see also 29 April 1966, columns 1133-4.
+15. <span id="f15" name="f15">Parliamentary Debates, House of Commons, 4 May 1966, columns 1765-7; see also 29 April 1966, columns 1133-4.</span> [↩](#t15)
 
-16.New York Times, 22 February 1967, p. 17.
+16. <span id="f16" name="f16">New York Times, 22 February 1967, p. 17.</span> [↩](#t16)
 
-17.Thomas J. Spinner Jr., A Political and Social History of Guyana, 1945-1983 (London, 1984) pp. 115-6; Agee, p. 406; New York Times, 4 January 1964, p. 10.
+17. <span id="f17" name="f17">Thomas J. Spinner Jr., A Political and Social History of Guyana, 1945-1983 (London, 1984) pp. 115-6; Agee, p. 406; New York Times, 4 January 1964, p. 10.</span> [↩](#t17)
 
-18.The Sunday Times, op. cit.
+18. <span id="f18" name="f18">The Sunday Times, op. cit.</span> [↩](#t18)
 
-19.Ibid.
+19. <span id="f19" name="f19">Ibid.</span> [↩](#t19)
 
-20.New York Times, 11 August 1963, p. 28.
+20. <span id="f20" name="f20">New York Times, 11 August 1963, p. 28.</span> [↩](#t20)
 
-21.Ibid., 11 September 1963, p. 1.
+21. <span id="f21" name="f21">Ibid., 11 September 1963, p. 1.</span> [↩](#t21)
 
-22.The Sunday Times (London) 25 May 1975, p. 4.
+22. <span id="f22" name="f22">The Sunday Times (London) 25 May 1975, p. 4.</span> [↩](#t22)
 
-23.San Francisco Chronicle, 21 March 1964, p. 27.
+23. <span id="f23" name="f23">San Francisco Chronicle, 21 March 1964, p. 27.</span> [↩](#t23)
 
-24.Jagan, pp. 372-5.
+24. <span id="f24" name="f24">Jagan, pp. 372-5.</span> [↩](#t24)
 
-25.New York Times, 31 October 1964, p. 7.
+25. <span id="f25" name="f25">New York Times, 31 October 1964, p. 7.</span> [↩](#t25)
 
-26.The Times (London) 29 June 1963, p. 8: the words are those of The Times.
+26. <span id="f26" name="f26">The Times (London) 29 June 1963, p. 8: the words are those of The Times.</span> [↩](#t26)
 
-27.Parliamentary Debates, House of Commons, 27 April 1964, column 109.
+27. <span id="f27" name="f27">Parliamentary Debates, House of Commons, 27 April 1964, column 109.</span> [↩](#t27)
 
-28.The Times (London) 7 December 1964, p. 8.
+28. <span id="f28" name="f28">The Times (London) 7 December 1964, p. 8.</span> [↩](#t28)
 
-29.Events of December 1964: The Times (London), 4 to 15 December 1964.
+29. <span id="f29" name="f29">Events of December 1964: The Times (London), 4 to 15 December 1964.</span> [↩](#t29)
 
-30.The Nation, June 4, 1990, pp. 763-4
+30. <span id="f30" name="f30">The Nation, June 4, 1990, pp. 763-4.</span> [↩](#t30)
 
-31.New York Times, 30 October 1994, p. 4.
+31. <span id="f31" name="f31">New York Times, 30 October 1994, p. 4.</span> [↩](#t31)
 
-32.Ibid., pp. 1 and 4.
+32. <span id="f32" name="f32">Ibid., pp. 1 and 4.</span> [↩](#t32)
 
-33.Ibid., p. 4.
+33. <span id="f33" name="f33">Ibid., p. 4.</span> [↩](#t33)
