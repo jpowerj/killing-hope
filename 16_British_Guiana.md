@@ -123,4 +123,68 @@ Still-classified documents depict in unusual detail a direct order from the Pres
 
 ## Notes
 
-1. <span id="f1" name="f1">Crevecoeur, Hector St. John de, *Letters From an American Farmer and Sketches of Eighteenth century America*, Ed. with introd. Albert E. Stone, Penguin, New York, 1981., 214.</span> [↩](#t1)
+1. <span id="f1" name="f1">Events of 1953: The Guardian (London), 28 December 1984, for a detailed description of the raw cynicism behind the British action, based on government documents released in 1984; see also The Times (London) 7 and 10 October 1953; Cheddi Jagan, The West on Trial (London, 1966) chapters 7 and 8; “The Ordeal of British Guiana”, Monthly Review, (New York) July-August 1964, pp. 16-19.</span> [↩](#t1)
+
+2. <span id="f2" name="f2>Parliamentary Debates, House of Commons, 22 October 1953, column 2170, speech by Oliver Lyttleton.</span> [↩](#t2)
+
+3. <span id="f3" name="f3">Ticket incident: New York Times, 16 October 1953, Jagan, p. 149. Pan Am: Morton Halperin, et al., The Lawless State (Penguin Books, New York, 1976), p. 47; Christopher Robbins, Air America (New York, 1979), p. 58; CounterSpy magazine (Washington) December 1983-February 1984, p. 21; Trippe was a member of two long-time CIA fronts: The American Institute for Free Labor Development, and The Asia Foundation (formerly called National Committee for a Free Asia)</span> [↩](#t3)
+
+4. <span id="f4" name="f4">ORIT: Jagan, pp. 296-7; Philip Agee, Inside the Company: CIA Diary (New York, 1975) see index; Survey of the Alliance for Progress: Labor Policies and Programs, Staff Report of the US Senate Foreign Relations Committee, Subcommittee on American Republics Affairs, 15 July 1968, pp. 8-9; Serafino Romualdi, Presidents and Peons: Recollections of a Labor Ambassador in Latin America (New York, 1967), p. 346.</span> [↩](#t4)
+
+5. <span id="f5" name="f5">Events of 1957-59: The Sunday Times (London) 16 and 23 April 1967.</span> [↩](#t5)
+
+6. <span id="f6" name="f6">New York Times, 22 February 1967, pp. 1, 17.</span> [↩](#t6)
+
+7. <span id="f7" name="f7">The Sunday Times, op. cit.</span> [↩](#t7)
+
+8. <span id="f8" name="f8">Jagan, p. 304.</span> [↩](#t1)
+
+9. <span id="f9" name="f9">Richard Barnet, Intervention and Revolution (London, 1972) p. 244.</span> [↩](#t9)
+
+10. <span id="f10" name="f10">Arthur Schlesinger, A Thousand Days (Boston, 1965) pp. 774-9.</span> [↩](#t10)
+
+11. <span id="f11" name="f11">San Francisco Chronicle, 21 March 1964, p. 27; New York Times, 31 October 1964, p. 7; The Times (London), 29 June 1963, p. 8.</span> [↩](#t11)
+
+12. <span id="f12" name="f12">Jagan, p. 255.</span> [↩](#t12)
+
+13.1962 strike: New York Times, 22 February 1967, p. 17; 30 October 1994, p. 4 (media):Barnet, p. 245; Agee, pp. 293-4; Jagan, pp. 252-69; The Times (London) 13 March 1962, p.10.
+
+14.1963 strike, general description: Jagan, chapters 13 and 14.
+
+15.Parliamentary Debates, House of Commons, 4 May 1966, columns 1765-7; see also 29 April 1966, columns 1133-4.
+
+16.New York Times, 22 February 1967, p. 17.
+
+17.Thomas J. Spinner Jr., A Political and Social History of Guyana, 1945-1983 (London, 1984) pp. 115-6; Agee, p. 406; New York Times, 4 January 1964, p. 10.
+
+18.The Sunday Times, op. cit.
+
+19.Ibid.
+
+20.New York Times, 11 August 1963, p. 28.
+
+21.Ibid., 11 September 1963, p. 1.
+
+22.The Sunday Times (London) 25 May 1975, p. 4.
+
+23.San Francisco Chronicle, 21 March 1964, p. 27.
+
+24.Jagan, pp. 372-5.
+
+25.New York Times, 31 October 1964, p. 7.
+
+26.The Times (London) 29 June 1963, p. 8: the words are those of The Times.
+
+27.Parliamentary Debates, House of Commons, 27 April 1964, column 109.
+
+28.The Times (London) 7 December 1964, p. 8.
+
+29.Events of December 1964: The Times (London), 4 to 15 December 1964.
+
+30.The Nation, June 4, 1990, pp. 763-4
+
+31.New York Times, 30 October 1994, p. 4.
+
+32.Ibid., pp. 1 and 4.
+
+33.Ibid., p. 4.
