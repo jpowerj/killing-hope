@@ -125,7 +125,7 @@ Still-classified documents depict in unusual detail a direct order from the Pres
 
 1. <span id="f1" name="f1">Events of 1953: The Guardian (London), 28 December 1984, for a detailed description of the raw cynicism behind the British action, based on government documents released in 1984; see also The Times (London) 7 and 10 October 1953; Cheddi Jagan, The West on Trial (London, 1966) chapters 7 and 8; “The Ordeal of British Guiana”, Monthly Review, (New York) July-August 1964, pp. 16-19.</span> [↩](#t1)
 
-2. <span id="f2" name="f2>Parliamentary Debates, House of Commons, 22 October 1953, column 2170, speech by Oliver Lyttleton.</span> [↩](#t2)
+2. <span id="f2" name="f2">Parliamentary Debates, House of Commons, 22 October 1953, column 2170, speech by Oliver Lyttleton.</span> [↩](#t2)
 
 3. <span id="f3" name="f3">Ticket incident: New York Times, 16 October 1953, Jagan, p. 149. Pan Am: Morton Halperin, et al., The Lawless State (Penguin Books, New York, 1976), p. 47; Christopher Robbins, Air America (New York, 1979), p. 58; CounterSpy magazine (Washington) December 1983-February 1984, p. 21; Trippe was a member of two long-time CIA fronts: The American Institute for Free Labor Development, and The Asia Foundation (formerly called National Committee for a Free Asia)</span> [↩](#t3)
 
