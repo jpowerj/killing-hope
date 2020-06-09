@@ -5,19 +5,29 @@
 ![Killing Hope](kh_title.jpeg)
 
 Copyright © William Blum 2004
+
 All rights reserved.
+
 Cover design by Matt Wuerker and Erica Bjerning
+
 Library of Congress Cataloging-in-Publication Data is available from the publisher on request.
+
 ISBN: 978-1-56751-252-6 paper
+
 ISBN 1-56751-253-4 cloth
+
 ISBN: 978-1-56751-409-4 ebook
 
 Updated from the 1995 edition, which was in turn a revised and expanded version of The CIA, A Forgotten History, published in 1986 by Zed Books, London. The 1995 edition of Killing Hope went through six printings.
 
 Common Courage Press
+
 P.O. Box 702
+
 Monroe, ME 04951
+
 207-525-0900 fax: 207-525-3068
+
 www.commoncouragepress.com
 
 Second Edition, Fifth printing 2012
@@ -25,6 +35,7 @@ Second Edition, Fifth printing 2012
 ## Contents
 
 Author’s Note
+
 Introduction
 
 1. China 1945 to 1960s: Was Mao Tse-tung just paranoid?
@@ -85,8 +96,13 @@ Introduction
 56. The American Empire: 1992 to present
 
 Notes
+
 Appendix I: This is How the Money Goes Round
+
 Appendix II: Instances of Use of United States Armed Forces Abroad, 1798-1945
+
 Appendix III: U.S. Government Assassination Plots
+
 Index
+
 About the Author
