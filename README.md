@@ -2,7 +2,7 @@
 
 ## William Blum
 
-!(kh_title.jpeg)
+![Killing Hope](kh_title.jpeg)
 
 Copyright © William Blum 2004
 All rights reserved.
