@@ -53,7 +53,7 @@ Introduction
 13. The Middle East 1957-1958: The Eisenhower Doctrine claims another backyard for America
 14. Indonesia 1957-1958: War and pornography
 15. Western Europe 1950s and 1960s: Fronts within fronts within fronts
-<a href="./16_British_Guiana.md">16. British Guiana 1953-1964: The CIA’s international labor mafia</a>
+16. <a href="./16_British_Guiana.md">British Guiana 1953-1964: The CIA’s international labor mafia</a>
 17. Soviet Union late 1940s to 1960s: From spy planes to book publishing
 18. Italy 1950s to 1970s: Supporting the Cardinal’s orphans and techno-fascism
 19. Vietnam 1950-1973: The Hearts and Minds Circus
