@@ -34,9 +34,9 @@ Second Edition, Fifth printing 2012
 
 ## Contents
 
-Author's Note
+<a href="./00a_Authors_Note.md">Author's Note</a>
 
-Introduction
+<a href="./00b_Introduction.md">Introduction</a>
 
 1. China 1945 to 1960s: Was Mao Tse-tung just paranoid?
 2. Italy 1947-1948: Free elections, Hollywood style
